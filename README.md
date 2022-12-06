@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mostghoste
+- 👀 I’m interested in becoming a great programmer
+- 🌱 I’m currently studying computer science
+- 💞️ I’m looking to collaborate on various projects that would allow me to learn, and that aren't too complicted. I also hope to find a mentor.
+- 📫 How to reach me: FlowerPower#8035
